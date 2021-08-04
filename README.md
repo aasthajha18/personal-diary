@@ -53,5 +53,7 @@ STEPS OF COMPOSING-
 
 ![image](https://user-images.githubusercontent.com/62761345/128206881-b09d91fd-72f9-4fa1-a2f4-3211a8025781.png)
 
+![image](https://user-images.githubusercontent.com/62761345/128208433-96abd2ac-3050-4a7c-b176-8367ed7ef2b6.png)
+
 
 Now enjoy !! and make your diary your best Friend.
